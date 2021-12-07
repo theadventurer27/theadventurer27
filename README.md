@@ -2,7 +2,7 @@
 - 👀 I’m interested in idk
 - 🌱 I’m currently learning idk
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me is email here ovaliquettebujoreanu27@rocktwp.net dont spam me 
+- 📫 How to reach me is email here ovaliquettebujoreanu27@rocktwp.net dont spam me (I also play manylands my user is the adventurer) 
 
 <!---
 theadventurer27/theadventurer27 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
